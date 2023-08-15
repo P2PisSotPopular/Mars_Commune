@@ -19,4 +19,4 @@
 **公社审核群**：<br><br>
 ![公社审核群.png](https://p2pissotpopular.github.io/Mars_Commune/审核群图片.png)
 
-#全世界无产者联合起来！
+# 全世界无产者联合起来！
